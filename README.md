@@ -4,4 +4,13 @@
 just using this for testing
 
 #jdsb.kzjdbf.kjz.bfd
-shiav
+Terms and Conditions:
+- All fees paid are non-refundable.
+
+- A visa does not guarantee entry into the U.S.
+
+- A visa allows a foreign citizen coming from abroad, to travel to the United States port-of-entry and request permission to enter the U.S.
+
+- Permission to enter can only be given by a Department of Homeland Security (DHS), Customs and Border Protection (CBP) official.
+
+- You may not enter the U.S. with an expired visa. The visa must be valid at the time you enter the U.S.
